@@ -1,0 +1,1 @@
+De-registration from the Ground School Session
